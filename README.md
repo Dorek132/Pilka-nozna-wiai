@@ -1,4 +1,0 @@
-THE CHAMPIONSSSS
-
-
-Nasza strona
